@@ -1,4 +1,4 @@
-Glory to Calibria Mod
+Minecraftia Mod
 Victoria II
 
 -----
